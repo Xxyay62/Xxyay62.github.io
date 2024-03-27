@@ -1,2 +1,2 @@
 # Xxyay62.github.io
-Portfolio d'Xxyay62, étudiante en BTS SIO
+Portfolio d'Xxyay62, étudiant en BTS SIO
